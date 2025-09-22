@@ -1,23 +1,23 @@
 # Haii 👋 Aku Tika 🌸  
 
 Get to know about me!!!
-Timekasiii sudah mampir ke profil GitHub aku ✨  
+Timekasiii sudah mampir ke profil GitHub akuuu ✨  
 
 ---
 
 ## 🌷 Tentang Aku   
-- 🤔 Aku butuh bantuan dalam: mengasah keterampilan coding agar lebih mantap.  
+- 🤔 Disini aku butuh banget temen yang jago ngoding hehe untuk mengasah keterampilan coding aja sih agar lebih mantap.  
 - 💬 btw aku kalau masak mie ngeracik sendiri bumbunya hwhe
-- 📫 Cara menghubungi aku: [Instagram](https://instagram.com/sntikazv)   
-- 😄 Panggil aku dengan: tikaa,tik,santi,senyaman nya aja deh.  
-- ⚡ Fun fact: aku orangnya **panikan** 😅 dan gampang banget **tersentuh** kalau lihat video yang menyanyat 🥺💖 terus aku ga nyetok mie instan. 
+- 📫 eh eh followan dullu ga siii [Instagram](https://instagram.com/sntikazv)   
+- 😄 Panggilan aku banyak guys, bisa tikaa,tik,santi,senyaman nya aja deh.  
+- ⚡ Fun fact aku banyak ges aku orangnya **panikan** 😅 terus gampang banget **tersentuh** kalau lihat video yang menyanyat 🥺💖 terus aku ga nyetok mie instan terus lagiiii aku belum pernah laundry (jujur pengen, tapi aku gasuka baju kotor numpuk💘)
 
 ---
 
 ## 💖 Hobi & Kesukaan
-- 🎶 Dengerin musik buat nenangin hati & nambah semangat.  
-- 📚 Baca buku atau artikel seru yang bikin tambah ilmu.  
+- 🎶 number one ya pasti dengerin musik dong buat nenangin hati dan nambah semangat juga.
 - 🌿 Jalan-jalan ke alam biar kepala fresh dan hati adem.  
+- 🧑‍🍳 btw aku suka masak, kadang kulyeah bawa bekal hehe (kalau lagi rajin aja ges)
 
 ---
 
