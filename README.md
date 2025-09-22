@@ -8,7 +8,7 @@ Yuk kenalan lebih dekat sama aku~ ✨
 
 ## 🌷 Tentang Aku   
 - 🤔 Aku butuh bantuan dalam: mengasah keterampilan coding agar lebih mantap.  
-- 💬 btw aku kalau masak mie ngeracik sendiri bumbunnya hwhe
+- 💬 btw aku kalau masak mie ngeracik sendiri bumbunya hwhe
 - 📫 Cara menghubungi aku: [Instagram](https://instagram.com/sntikazv)   
 - 😄 Panggil aku dengan: tikaa,tik,santi,senyaman nya aja deh.  
 - ⚡ Fun fact: aku orangnya **panikan** 😅 dan gampang banget **tersentuh** kalau lihat video yang menyanyat 🥺💖 terus aku ga nyetok mie instan. 
