@@ -12,7 +12,7 @@ Yuk kenalan lebih dekat sama aku~ ✨
 - 👯 Aku ingin berkolaborasi dalam: penelitian sederhana, latihan coding, atau proyek open-source.  
 - 🤔 Aku butuh bantuan dalam: mengasah keterampilan coding agar lebih mantap.  
 - 💬 Tanya aku tentang: fisika, geofisika, sinyal & gelombang, atau pemrograman dasar.  
-- 📫 Cara menghubungi aku: [Instagram](https://instagram.com/username) | [LinkedIn](https://linkedin.com/in/username)  
+- 📫 Cara menghubungi aku: [Instagram](https://instagram.com/sntikazv)   
 - 😄 Panggil aku dengan: dia/perempuan.  
 - ⚡ Fun fact: aku orangnya **panikan** 😅 dan gampang banget **tersentuh** kalau lihat video bapak-bapak sedih 🥺💖.  
 
