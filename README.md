@@ -6,15 +6,12 @@ Yuk kenalan lebih dekat sama aku~ ✨
 
 ---
 
-## 🌷 Tentang Aku
-- 🔭 Saat ini aku sedang mengerjakan: proyek kuliah tentang **fisika, sinyal, dan pemrograman**.  
-- 🌱 Aku sedang belajar: **Geofisika, Python, dan analisis data**.  
-- 👯 Aku ingin berkolaborasi dalam: penelitian sederhana, latihan coding, atau proyek open-source.  
+## 🌷 Tentang Aku   
 - 🤔 Aku butuh bantuan dalam: mengasah keterampilan coding agar lebih mantap.  
-- 💬 Tanya aku tentang: fisika, geofisika, sinyal & gelombang, atau pemrograman dasar.  
+- 💬 btw aku kalau masak mie ngeracik sendiri bumbunnya hwhe
 - 📫 Cara menghubungi aku: [Instagram](https://instagram.com/sntikazv)   
-- 😄 Panggil aku dengan: dia/perempuan.  
-- ⚡ Fun fact: aku orangnya **panikan** 😅 dan gampang banget **tersentuh** kalau lihat video bapak-bapak sedih 🥺💖.  
+- 😄 Panggil aku dengan: tikaa,tik,santi,senyaman nya aja deh.  
+- ⚡ Fun fact: aku orangnya **panikan** 😅 dan gampang banget **tersentuh** kalau lihat video yang menyanyat 🥺💖 terus aku ga nyetok mie instan. 
 
 ---
 
