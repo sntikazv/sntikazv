@@ -18,7 +18,6 @@ Yuk kenalan lebih dekat sama aku~ ✨
 ## 💖 Hobi & Kesukaan
 - 🎶 Dengerin musik buat nenangin hati & nambah semangat.  
 - 📚 Baca buku atau artikel seru yang bikin tambah ilmu.  
-- 💻 Ngoding sambil ngopi ☕ (kadang sukses, kadang error 🤭).  
 - 🌿 Jalan-jalan ke alam biar kepala fresh dan hati adem.  
 
 ---
