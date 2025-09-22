@@ -1,8 +1,7 @@
 # Haii 👋 Aku Tika 🌸  
 
-Senang banget kamu mampir ke profil GitHub aku!  
-Di sini aku sering belajar, eksperimen kecil-kecilan, dan nyimpen project kuliahku.  
-Yuk kenalan lebih dekat sama aku~ ✨  
+Get to know about me!!!
+Timekasiii sudah mampir ke profil GitHub aku ✨  
 
 ---
 
